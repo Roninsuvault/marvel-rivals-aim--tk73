@@ -1,4 +1,4 @@
-
+Raro Marvel Rivals traps WH é o melhor Marvel Rivals traps WH com morte instantânea e teletransporte. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
